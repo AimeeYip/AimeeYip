@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AimeeYip
 - 👀 I’m interested in golf, horse riding, Ai, Arts, travel, jewellery design, kendo
 - 🌱 I’m currently learning marketing, finance, Ai Hackathon
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on design
 - 📫 How to reach me instagram: aineeykt, Email： Dudu08811@outlook.com
 
 <!---
